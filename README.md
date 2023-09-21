@@ -1,1 +1,1 @@
-just for timepass
+I am K pradeep Reddy, I have a 5 years of working experience in graphic designer. I wanted to become user experience designer, so I wanted to learn how the websites were built. I took this course to learn how to create response design and with good content presentation and also coding language.
